@@ -1,0 +1,1 @@
+# Istisno_turlari
